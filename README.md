@@ -66,5 +66,6 @@ CANER BEY
 
 🚨 DENEYİM ŞARTI ARANMAMAKTADIR!
 👫 BAY & BAYAN ADAYLAR İÇİN ÇEŞİTLİ POZİSYONLARDA ALIM YAPILMAKTADIR.
+https://docs.google.com/forms/d/e/1FAIpQLSfvoD7ERVT4DA8BaHQPWm1WlWu9y59hnk5Cghvj19Ca59iaCQ/viewform
 
-#Gebze #Kocaeli #İşİlanı #Gebzeİşİlanı #PersonelAlımı #MaviYaka #BayBayanİşİlanı #İşArıyorum #İstihdam
+
